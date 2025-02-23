@@ -1,2 +1,2 @@
 # Work-Projects
-**E-commerce Store:** [My E.com Store]([shorturl.at/Gl9Mc](https://3qvxps-i2.myshopify.com/)
+**E-commerce Store:** [My E.com Store](https://3qvxps-i2.myshopify.com/)
