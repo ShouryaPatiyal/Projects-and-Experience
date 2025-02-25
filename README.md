@@ -6,7 +6,7 @@ I run my own e-commerce store, managing everything from marketing and website op
 
 🌐 This is my personal website.
 
-**My portfolio website:** [Portfolio website](https://shouryapatiyal.builder-preview.com/)
+**My portfolio website:** [Portfolio website](shouryapatiyal.com)
 
 📢 Digital Marketing Experience
 I have worked with various businesses, helping them grow online through Meta Ads, content creation, and strategic marketing.
