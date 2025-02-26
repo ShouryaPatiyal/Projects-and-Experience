@@ -1,4 +1,4 @@
-# Projects and Experience
+# E-commerce and digital marketing projects
 🛍️ E-Commerce Store
 I run my own e-commerce store, managing everything from marketing and website optimization to customer engagement and growth strategies and constantly experimenting with new ad strategies and scaling techniques to maximize performance!
 
